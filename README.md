@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @linhist
+- 👀 I’m interested in coding world
+- 🌱 I’m currently learning some coding tools
+- 📫 Contact to me by email linhist@gmail.com
